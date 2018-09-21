@@ -1,4 +1,4 @@
-- 480 ml tomato juice
+- 500 ml tomato juice
 - 100 ml pickle brine
 - 45 ml clam juice
 - 30 ml lemon juice
